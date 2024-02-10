@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @maddie737x
+- 👀 I’m interested in science, computers, and photography
+- 🌱 I’m currently learning Java, C++
+- 😄 Pronouns: She/Her
